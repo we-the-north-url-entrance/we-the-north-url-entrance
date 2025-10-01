@@ -43,4 +43,6 @@ Step into the trusted realm of We The North Market today and experience a darkne
 
 *Disclaimer: This article is for informational purposes only.*
 
-Update:  09/18/2025
+
+
+Update:  Wednesday 01 October 2025 link is live and functioning properly
